@@ -10,4 +10,4 @@
 IG: @uh_vitim_
 
 
-![](https://media1.tenor.com/m/bDwmNO94j8AAAAAd/chicharito-free-fire.gif)
+![](https://media1.tenor.com/m/KBNVmNOnRacAAAAC/free_fire.gif)
