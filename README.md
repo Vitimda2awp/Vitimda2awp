@@ -8,4 +8,5 @@
 ### Você pode entrar em contato comigo 📫
 
 IG: @uh_vitim_
-![image](https://github.com/user-attachments/assets/57de631a-1690-44df-a7ca-7da6f035ffbb)
+
+https://media1.tenor.com/m/bDwmNO94j8AAAAAd/chicharito-free-fire.gif
